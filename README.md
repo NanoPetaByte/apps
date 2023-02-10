@@ -1,1 +1,0 @@
-# NanoPetaByte's Apps
